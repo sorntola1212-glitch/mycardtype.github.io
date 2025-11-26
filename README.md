@@ -1,0 +1,1 @@
+# mycardtype.github.io
